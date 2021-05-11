@@ -1,4 +1,4 @@
 Kamalli habibi mahta dilai
-ilayya anyya binda ilai
+ilayya anayya binda ilai
 vilaha walyala kulli ku
 yakuniya habibi mahta dillai
